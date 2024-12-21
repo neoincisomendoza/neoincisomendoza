@@ -1,6 +1,6 @@
 # Howdy 🙋‍♀️
 
-I'm **Neomi Margreth Inciso Mendoza**
+I'm **Neomi Margareth Inciso Mendoza**
 
 Here's some information about me that might be relevant to you:
 
